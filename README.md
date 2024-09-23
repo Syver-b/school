@@ -1,1 +1,1 @@
-GitHub for school projects and collaberations!
+GitHub for school projects and collaborations!
